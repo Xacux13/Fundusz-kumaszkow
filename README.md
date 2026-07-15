@@ -1,0 +1,1 @@
+# Fundusz-kumaszkow
